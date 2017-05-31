@@ -1,3 +1,3 @@
 # AndroidNavigations
 
-<a href="https://imgflip.com/gif/1q1pbv"><img src="https://i.imgflip.com/1q1pbv.gif" title="made at imgflip.com"/></a>
+![1q1pi6](https://cloud.githubusercontent.com/assets/28993827/26644232/aaaec240-4651-11e7-8050-fec81602a238.gif)
